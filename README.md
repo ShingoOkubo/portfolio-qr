@@ -1,0 +1,1 @@
+# shingookubo.github.io
